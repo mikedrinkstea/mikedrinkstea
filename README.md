@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mikedrinkstea
-- 👀 I’m interested in VTubers, Craft Beer, and Apex Legends
+- 👀 I’m interested in Craft Beer, Video Games, and Reading Books
 - 🌱 I’m currently learning basic coding and 日本語 (Japanese)!
 - 💞️ I’m looking to collaborate on ...TBD!
 - 📫 How to reach me - message me on github!
